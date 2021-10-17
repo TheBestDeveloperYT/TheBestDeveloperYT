@@ -4,6 +4,8 @@
 - 💞️ I’m looking to collaborate on: Persons who have a good experience.
 - 📫 How to reach me: Show me all your things you can do. (Only Shortcuts App)
 
+- (Also create JS file, and others coding files.)
+
 - I am active in my RoutineHub Page. Send me a comment on a Shortcut, and im going to respond! 👨🏻‍💻
 
 - @TheBestDeveloper
